@@ -1,0 +1,1 @@
+There once was a very good dog named Lou. He loved to bark and play and run and poop. One night he got into him doggie-mommas chocolate and ate it all. It gave him such a stomachach that he swore off chocolate forever
